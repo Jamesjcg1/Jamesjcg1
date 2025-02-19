@@ -1,4 +1,4 @@
-# Hi, I'm @Jamesjcg1 👋
+# Hi, I'm James Cervantes 👋
 
 I'm a systems engineer and consultant passionate about technology and innovation. I focus on developing tech solutions that transform processes and drive business growth.
 
